@@ -3,7 +3,7 @@
 
 
 ## Full Tutorial
-[On Youtube](https://www.youtube.com/playlist?list=PL2WFgdVk-usHC-HHC0SkpsmHquwHB0Aiy)
+[On Youtube](https://youtu.be/Z6nDxU573YY)
 
 
 ## Features
